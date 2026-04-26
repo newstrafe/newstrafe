@@ -1,4 +1,4 @@
 ## Hi there, I'm Andrew aka newstrafe, here is a fun fact about me!
 > i exist
 # what am i proud of
-multiswitch & fentanyl ig
+shrimple & fentanyl ig
